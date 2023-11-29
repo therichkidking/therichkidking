@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @therichkidking
+- 👀 I’m interested in games
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on youtube with BIG creators 
+- 📫 How to reach me imachristian759@gmail.com
